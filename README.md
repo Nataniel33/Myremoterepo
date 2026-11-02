@@ -1,1 +1,1 @@
-# Myremoterepo
+# Paragon z wazywniaka
